@@ -5,3 +5,4 @@
   - Chapter 24: Anne Pauwels: Linguistic Sexism and Feminist Linguistic Activism
 - Dale Spencer: Man Made Language (Chapters 1, 5, 6)
 - Casey Miller & Kate Swift, Words and Women
+- Julia Stanley THE PROSTITUTE: Paradigmatic Woman
