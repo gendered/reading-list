@@ -6,3 +6,5 @@
 - Dale Spencer: Man Made Language (Chapters 1, 5, 6)
 - Casey Miller & Kate Swift, Words and Women
 - Julia Stanley THE PROSTITUTE: Paradigmatic Woman
+- The Feminist Critique of Language: A Reader
+- Language and Sex: Difference and Dominance
