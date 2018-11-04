@@ -9,13 +9,13 @@
 - Julia Stanley THE PROSTITUTE: Paradigmatic Woman
 - The Feminist Critique of Language: A Reader, Deborah Cameron
 - Language and Sex: Difference and Dominance, Nancy Henley, Barrie Thorne
-- Language and a woman’s place, Robin Lakoff *
-- Nancy Henley Psychology of Language and Gender in Women's Studies Quarterly *
-- Help stamp out sexism: Change the language, Nancy Henley, Psychology of Women Quarterly *
-- An analysis of classic arguments against changing sexist language, Maija S.Blaubergs in Women’s Studies International Quarterly *
-- Notes on the tyranny of language usage, Andrea E.Goldsmith n Women’s Studies International Quarterly *
+- Language and a woman’s place, Robin Lakoff ***
+- Nancy Henley Psychology of Language and Gender in Women's Studies Quarterly ***
+- Help stamp out sexism: Change the language, Nancy Henley, Psychology of Women Quarterly ***
+- An analysis of classic arguments against changing sexist language, Maija S.Blaubergs in Women’s Studies International Quarterly ***
+- Notes on the tyranny of language usage, Andrea E.Goldsmith n Women’s Studies International Quarterly ***
 
 
 
 
-* don't have access to.
+*** don't have access to.
