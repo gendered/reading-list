@@ -3,9 +3,9 @@
 - Ann Weatherall: Gender, Language and Discourse.
 - Janet Holmes Miriam Meyerhoff: The Handbook of Language and Gender
   - Chapter 24: Anne Pauwels: Linguistic Sexism and Feminist Linguistic Activism
-- Dale Spencer: Man Made Language (Chapters 1, 5, 6)
+- [Man Made Language](https://archive.org/details/manmadelanguage00spe) (Chapters 1, 5, 6), Dale Spencer 
 - Maria Black and Rosalind Coward LINGUISTIC, SOCIAL AND SEXUAL RELATIONS: A REVIEW OF DALE SPENDER'S MAN MADE LANGUAGE (in The Feminist Critique of Language: A Reader)
-- Casey Miller & Kate Swift, Words and Women
+- [Words and Women](https://archive.org/details/wordswomen00case), Casey Miller & Kate Swift
 - Julia Stanley THE PROSTITUTE: Paradigmatic Woman
 - The Feminist Critique of Language: A Reader, Deborah Cameron
 - Language and Sex: Difference and Dominance, Nancy Henley, Barrie Thorne
@@ -18,4 +18,4 @@
 
 
 
-*** don't have access to.
+*** don't have access to. Most of the rest are available as pdfs by just searching online. I have access to the rest, if you can't find and afford one you can email me :)
